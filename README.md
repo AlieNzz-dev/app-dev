@@ -1,4 +1,3 @@
-# My Interests & Favorites
 
 ## Movies
 I enjoy watching movies that can **inspire you** and *superhero* movies. 
